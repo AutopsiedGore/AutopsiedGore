@@ -1,18 +1,6 @@
-
-![1000005058](https://github.com/user-attachments/assets/d47b676f-fd17-426b-8b6e-5acc3e1496dc)
-
-
-![1000005067](https://github.com/user-attachments/assets/6022608a-5c7b-441c-8c1c-b80d2cef5510)
-
-<img width="400" height="54" alt="1000004872" src="https://github.com/user-attachments/assets/2b4d071e-912d-4962-94ea-893960086dc8" />
+<img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/268362e7-8d2d-48f8-bd09-f55e6dd22dc5" />
 
 
-
-
-<img width="500" height="393" alt="1000005066" src="https://github.com/user-attachments/assets/7cfe1b45-b7ac-48a1-9504-1ed1a8c8f1b7" />
-
-
-<img width="400" height="54" alt="1000004872" src="https://github.com/user-attachments/assets/2b4d071e-912d-4962-94ea-893960086dc8" />
 
     　 
        
@@ -35,32 +23,43 @@
 
   　✦︎ 𝙈𝙤𝙨𝙩 𝙊𝙛 𝙏𝙝𝙚 𝙏𝙞𝙢𝙚 𝙄'𝙢 𝘼𝙡𝙤𝙣𝙚 𝙎𝙤 𝙄'𝙙 𝙍𝙚𝙖𝙡𝙡𝙮 𝘼𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 𝘼𝙣𝙮𝙗𝙤𝙙𝙮'𝙨 𝘾𝙤𝙢𝙥𝙖𝙣𝙮 (⁠-⁠_⁠-⁠;⁠)⁠・⁠・⁠・
 
-<img width="400" height="54" alt="1000004872" src="https://github.com/user-attachments/assets/0eff5120-2d5b-4d54-8b60-dd3cb7f9cf98" />
+<img width="1280" height="720" alt="1000034181" src="https://github.com/user-attachments/assets/94b1bd3b-1044-4955-9265-dafebebcd265" />
+
+<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" />
+
 
  
 ⤿  　ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
+
+<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/940680d1-e11f-476c-86b7-951bfd6812cb" />
 
 ⤿  　THE Finx, Knocker, Ethan AND Larry & Lawrie Yume!! ( ALL SHARING )
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color_cover=false&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&redirect=true)
 
-<img width="1080" height="138" alt="1000004878" src="https://github.com/user-attachments/assets/42d54ccb-9157-43e9-9f9e-80143fa8a1cd" />
-
-
-    　![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://cheshirecatful.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ✦︎ [StrawPage](https://calciumpuppy.straw.page) ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)
-
-꒰ ![1000005060](https://github.com/user-attachments/assets/40183722-9f7a-4a93-8895-110ab3ca9e99)
- ꒱ 　Prns Page Soon !! ! ![1000005059](https://github.com/user-attachments/assets/404cbf72-50ee-471e-b96b-46869d2e8273)
-
-
-  ![1000004876](https://github.com/user-attachments/assets/a75aea14-3157-4404-b957-2eabad75d301) 　my kny __[oc](https://tsukihanaaomi.straw.page)__!!   <img width="97" height="54" alt="1000004838" src="https://github.com/user-attachments/assets/641f82c7-0a8e-4ad8-a076-2a7589dd0b56" />
-
-
-![1000005058](https://github.com/user-attachments/assets/f87a4452-ff3a-459c-8cfd-5e2f1d06b7d0)
 
 
 
+<img width="1588" height="529" alt="1000034180" src="https://github.com/user-attachments/assets/01329d47-63db-4f7a-b496-8a232f0eb0cf" />
 
+
+
+  　![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://cheshirecatful.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ✦︎ [StrawPage](https://calciumpuppy.straw.page) ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)
+
+
+
+  ![1000004876](https://github.com/user-attachments/assets/a75aea14-3157-4404-b957-2eabad75d301) 　my kny oc!! (wip)   <img width="97" height="54" alt="1000004838" src="https://github.com/user-attachments/assets/641f82c7-0a8e-4ad8-a076-2a7589dd0b56" />
+
+
+<img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/4ee55efe-faf3-40d2-af59-fd1ee5b3f47b" />
+
+
+
+
+
+
+
+( layout creds to crwyptid on tumblr!! ^^)
 
 
 
