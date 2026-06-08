@@ -48,7 +48,9 @@
 
 
 
-  ![1000004876](https://github.com/user-attachments/assets/a75aea14-3157-4404-b957-2eabad75d301) 　my kny oc!! (wip)   <img width="97" height="54" alt="1000004838" src="https://github.com/user-attachments/assets/641f82c7-0a8e-4ad8-a076-2a7589dd0b56" />
+<img width="640" height="30" alt="1000034187" src="https://github.com/user-attachments/assets/ad25f567-473b-4d34-8d6f-89979df1c365" />
+
+ 　                     my kny oc!! (wip)   
 
 
 <img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/4ee55efe-faf3-40d2-af59-fd1ee5b3f47b" />
