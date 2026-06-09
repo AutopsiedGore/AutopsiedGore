@@ -34,7 +34,9 @@
 ⤿  　ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
 
   <img width="20" height="20" alt="1000034199" src="https://github.com/user-attachments/assets/ff05c0d0-a66c-4fd8-9f49-410d5fe31db2" />
- INFJ ,, 4teen!! ; Aroace / Pansexual !!
+ INFJ ,, 4teen!! ; <img width="24" height="24" alt="1000034208" src="https://github.com/user-attachments/assets/cfb453d1-4997-4735-8bad-a87269617da6" />
+ / <img width="24" height="24" alt="1000034209" src="https://github.com/user-attachments/assets/e74307dc-474b-41ff-b547-ee3994eb96b3" />
+:: Hungarian !!
 
 <img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/940680d1-e11f-476c-86b7-951bfd6812cb" />
 
