@@ -48,8 +48,6 @@
 
 
 
-<img width="640" height="30" alt="1000034187" src="https://github.com/user-attachments/assets/ad25f567-473b-4d34-8d6f-89979df1c365" />
-
  　                     my kny oc!! (wip)   
 
 
