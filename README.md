@@ -38,7 +38,19 @@
 
 <img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/940680d1-e11f-476c-86b7-951bfd6812cb" />
 
-⤿  　THE Finx, Knocker, Ethan AND Larry & Lawrie Yume!! ( ALL SHARING )
+⤿  <img width="30" height="30" alt="1000034203" src="https://github.com/user-attachments/assets/4966fe4b-a463-4b6d-990e-a6d2948510c0" />　As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Alice In Borderland , Squid Game And 8 : 11 ! ;;   I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! 
+
+
+ <img width="20" height="20" alt="1000034200" src="https://github.com/user-attachments/assets/6e995580-9c6c-4d75-962f-ab5cc7eb22a2" />
+No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! 
+
+
+<img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !! 
+
+
+
+<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" />
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color_cover=false&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&redirect=true)
 
