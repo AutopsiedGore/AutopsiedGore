@@ -4,7 +4,9 @@
 
     　 
        
-  　　   ![1000003910](https://github.com/user-attachments/assets/c795f26a-7865-412f-abfb-8af063002f43) __Mαɳɠʅҽ__ ᵒʳ __Aυƚσρʂყ__ ![1000003911](https://github.com/user-attachments/assets/ce8cd150-bb30-440f-95da-1f3d8245d805)
+  　　   <img width="30" height="23" alt="1000034197" src="https://github.com/user-attachments/assets/36b927b1-ddc4-4230-a52a-969d2460a285" />
+ __Mαɳɠʅҽ__ ᵒʳ __Aυƚσρʂყ__ !<img width="30" height="23" alt="1000034198" src="https://github.com/user-attachments/assets/085c5a15-52ad-4a47-a471-d346ee805259" />
+
 
 
 
@@ -30,6 +32,9 @@
 
  
 ⤿  　ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
+
+  <img width="20" height="20" alt="1000034199" src="https://github.com/user-attachments/assets/ff05c0d0-a66c-4fd8-9f49-410d5fe31db2" />
+ INFJ ,, 4teen!! ; Aroace / Pansexual !!
 
 <img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/940680d1-e11f-476c-86b7-951bfd6812cb" />
 
