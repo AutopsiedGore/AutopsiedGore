@@ -67,7 +67,7 @@ No DNI , I Block Freely And I Don't Really Care About What People Like As Long A
 
 
 
- 　                     my kny oc!! (wip)   
+ 　                     my kny [oc!! (wip)](https://docs.google.com/document/d/1NvzXgvDXDHsY5yCFoGTLfhndK8BjlqMQAkHH3copaSw/edit?usp=drivesdk)  
 
 
 <img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/4ee55efe-faf3-40d2-af59-fd1ee5b3f47b" />
