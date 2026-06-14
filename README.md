@@ -81,6 +81,8 @@ No DNI , I Block Freely And I Don't Really Care About What People Like As Long A
 ( layout creds to crwyptid on tumblr!! ^^)
 
 
+<img width="687" height="166" alt="1000034320" src="https://github.com/user-attachments/assets/258554a4-99a5-43a5-9ce3-45457273470b" /> 
+OHMU GOD I AM SO FRIGGIN CHEERED TO SEE THISSS 🥹🥹🥹🥹 IAM OFFICALY PONYTOWN'S DOUMA GUYUYYYSGSGSH
 
 <!--
 **CalciumPuppy/CalciumPuppy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
