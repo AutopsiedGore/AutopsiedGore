@@ -5,7 +5,7 @@
     　 
        
   　　   <img width="30" height="23" alt="1000034197" src="https://github.com/user-attachments/assets/36b927b1-ddc4-4230-a52a-969d2460a285" />
- __Mαɳɠʅҽ__ ᵒʳ __Aυƚσρʂყ__ !<img width="30" height="23" alt="1000034198" src="https://github.com/user-attachments/assets/085c5a15-52ad-4a47-a471-d346ee805259" />
+ __Dσυɱα__ ᵒʳ __Aυƚσρʂყ__ !<img width="30" height="23" alt="1000034198" src="https://github.com/user-attachments/assets/085c5a15-52ad-4a47-a471-d346ee805259" />
 
 
 
