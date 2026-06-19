@@ -47,7 +47,7 @@
 No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! 
 
 
-<img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !! 
+<img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !!  , GenTan #1 Lover !1!1!
 
 
 
