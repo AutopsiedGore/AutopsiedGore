@@ -5,7 +5,7 @@
     　 
        
   　　   <img width="30" height="23" alt="1000034197" src="https://github.com/user-attachments/assets/36b927b1-ddc4-4230-a52a-969d2460a285" />
- __Dσυɱα__ ᵒʳ __Aυƚσρʂყ__ !<img width="30" height="23" alt="1000034198" src="https://github.com/user-attachments/assets/085c5a15-52ad-4a47-a471-d346ee805259" />
+ __Cԋιʂԋιყα__ ᵒʳ __Aυƚσρʂყ__ !<img width="30" height="23" alt="1000034198" src="https://github.com/user-attachments/assets/085c5a15-52ad-4a47-a471-d346ee805259" />
 
 
 
@@ -44,7 +44,7 @@
 
 
  <img width="20" height="20" alt="1000034200" src="https://github.com/user-attachments/assets/6e995580-9c6c-4d75-962f-ab5cc7eb22a2" />
-No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! 
+No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! You Can also call me by my fav characters' names!! (example, Douma!! ^_^)
 
 
 <img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !!  , GenTan #1 Lover !1!1!
