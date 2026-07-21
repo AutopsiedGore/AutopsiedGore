@@ -83,7 +83,8 @@ No DNI , I Block Freely And I Don't Really Care About What People Like As Long A
 
 <img width="687" height="166" alt="1000034320" src="https://github.com/user-attachments/assets/258554a4-99a5-43a5-9ce3-45457273470b" /> 
 OHMU GOD I AM SO FRIGGIN CHEERED TO SEE THISSS 🥹🥹🥹🥹 IAM OFFICALY PONYTOWN'S DOUMA GUYUYYYSGSGSH
-
+<img width="795" height="166" alt="1000035463" src="https://github.com/user-attachments/assets/2cd3e5b3-f25e-4b25-b2c5-12745d531013" />
+I have no idea who keeps on nominating me on these but thank you SO SO SO SO SO MUCHHH, it keans ALOT to meee <333 love u guys sm!!
 <!--
 **CalciumPuppy/CalciumPuppy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
