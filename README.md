@@ -40,7 +40,7 @@
 
 <img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/940680d1-e11f-476c-86b7-951bfd6812cb" />
 
-⤿  <img width="30" height="30" alt="1000034203" src="https://github.com/user-attachments/assets/4966fe4b-a463-4b6d-990e-a6d2948510c0" />　As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Lackadaisy , Alice In Borderland , Creepypasta  , Slendytubbies , Squid Game And 8 : 11 ! ;;   I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! 
+⤿  <img width="30" height="30" alt="1000034203" src="https://github.com/user-attachments/assets/4966fe4b-a463-4b6d-990e-a6d2948510c0" />　As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Kaisen , Lackadaisy , Alice In Borderland , Creepypasta  , Slendytubbies , Squid Game And 8 : 11 ! ;;   I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! 
 
 
  <img width="20" height="20" alt="1000034200" src="https://github.com/user-attachments/assets/6e995580-9c6c-4d75-962f-ab5cc7eb22a2" />
