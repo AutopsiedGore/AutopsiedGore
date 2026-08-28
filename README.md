@@ -81,11 +81,6 @@ You Can also call me by my fav characters' names!! (example, Douma, Misa is just
 
 
 
-
-
-( layout creds to crwyptid on tumblr!! ^^)
-
-
 <img width="687" height="166" alt="1000034320" src="https://github.com/user-attachments/assets/258554a4-99a5-43a5-9ce3-45457273470b" /> 
 OHMU GOD I AM SO FRIGGIN CHEERED TO SEE THISSS 🥹🥹🥹🥹 IAM OFFICALY PONYTOWN'S DOUMA GUYUYYYSGSGSH
 <img width="795" height="166" alt="1000035463" src="https://github.com/user-attachments/assets/2cd3e5b3-f25e-4b25-b2c5-12745d531013" />
