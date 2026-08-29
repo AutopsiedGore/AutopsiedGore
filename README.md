@@ -70,7 +70,7 @@ You Can also call me by my fav characters' names!! (example, Douma, Misa is just
 
 
 
-  　![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://cheshirecatful.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ✦︎ [StrawPage](https://Anatopsy.straw.page) ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)
+  　![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://autopsiedgore.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ✦︎ [StrawPage](https://Anatopsy.straw.page) ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)
 
 
 
