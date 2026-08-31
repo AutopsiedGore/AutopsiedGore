@@ -46,7 +46,7 @@
  <img width="20" height="20" alt="1000034200" src="https://github.com/user-attachments/assets/6e995580-9c6c-4d75-962f-ab5cc7eb22a2" />
 No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !!
 
-THOSE Satosugu shippers thin ice , also people who drain down Suguru(AND Satoru)'s depression js cz he's attractive also thin ice. :P 
+THOSE Satosugu shippers thin ice , also people who drain down Suguru( + Megumi)'s depression js cz he's attractive also thin ice. :P 
 
 You Can also call me by my fav characters' names!! (example, Douma, Misa is just a nickname!! ^_^)
 ⁠・⁠・⁠・
