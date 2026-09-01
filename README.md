@@ -80,7 +80,12 @@ You Can also call me by my fav characters' names!! (example, Douma, Misa is just
 <img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/4ee55efe-faf3-40d2-af59-fd1ee5b3f47b" />
 
 
+<img width="624" height="354" alt="1000036958" src="https://github.com/user-attachments/assets/be1b3730-fb78-47aa-9931-750f2c3963ae" />
+<img width="523" height="483" alt="1000036960" src="https://github.com/user-attachments/assets/5f0b562a-40c0-4dea-9dd8-30163921cef5" />
 
+me and my amazing stupid oomfs bye i luv them alot
+
+<img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/268362e7-8d2d-48f8-bd09-f55e6dd22dc5" />
 
 
 <img width="687" height="166" alt="1000034320" src="https://github.com/user-attachments/assets/258554a4-99a5-43a5-9ce3-45457273470b" /> 
