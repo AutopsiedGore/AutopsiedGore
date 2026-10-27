@@ -44,7 +44,7 @@
 
 
  <img width="20" height="20" alt="1000034200" src="https://github.com/user-attachments/assets/6e995580-9c6c-4d75-962f-ab5cc7eb22a2" />
-No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! Please Remember That I Am Intending To Remake Both My StrawPage And Rentry (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
+No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! I Am Intending To Remake Both My StrawPage And Rentry , Both Are Currently To Be Remade. (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 
 
 ・⁠ Please Keep In Mind That I Am Aroace. I Am Not Looking To Be In Any Relationships Because Of Past Experiences And I Hope Others Could Also Respect This Boundary. (⁠>⁠0⁠<⁠；⁠)
