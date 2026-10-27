@@ -44,17 +44,17 @@
 
 
  <img width="20" height="20" alt="1000034200" src="https://github.com/user-attachments/assets/6e995580-9c6c-4d75-962f-ab5cc7eb22a2" />
-No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !!
+No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! Please Remember That I Am Intending To Remake Both My StrawPage And Rentry (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 
 THOSE Satosugu shippers thin ice , also people who drain down Suguru( + Megumi)'s depression also thin ice.
 
 You Can also call me by my fav characters' names!! (example, Douma, Misa is just a nickname!! ^_^)
 ⁠・⁠・⁠・
 
-✦︎ Sharing Aizetsu and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother)👀 
+✦︎ Sharing Hantengu Clones (mainly Aizetsu) and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ⁠◜⁠‿⁠◝⁠ ⁠) 
 
 
-<img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !!  , GenTan #1 Lover !1!1!
+<img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !!  , Genya x Tanjiro #1 Lover !1!1! 
 
 
 
