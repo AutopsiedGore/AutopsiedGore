@@ -47,8 +47,6 @@
 No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! I Am Intending To Remake Both My StrawPage And Rentry , Both Are Currently To Be Remade. (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 
 
-・⁠ Please Keep In Mind That I Am Aroace. I Am Not Looking To Be In Any Relationships Because Of Past Experiences And I Hope Others Could Also Respect This Boundary. (⁠>⁠0⁠<⁠；⁠)
-
 THOSE Satosugu shippers thin ice , also people who drain down Suguru( + Megumi)'s depression also thin ice.
 
 You Can also call me by my fav characters' names!! (example, Douma, Misa is just a nickname!! ^_^)
