@@ -98,3 +98,6 @@ I have no idea who keeps on nominating me on these but thank you SO SO SO SO SO 
 AHSHSJ I'M SKSOOSOS HAPPY ILYSM GUYSSS
 <img width="1080" height="229" alt="1000038828" src="https://github.com/user-attachments/assets/08ed219a-0be4-4f24-8951-f1af227ce28f" />
 GIGGLES AND KICKS MY FEET
+<img width="1080" height="183" alt="1000038845" src="https://github.com/user-attachments/assets/25f84dc6-9b74-4fc4-8f04-ff008940e331" />
+GOT RECOGNIZED AS MY BIGGEST COMF CHAR ❤️ ❤️ ❤️ 🥹 THANKCHU ANDI SO SO MUCH FOR NOMINATING ME
+
