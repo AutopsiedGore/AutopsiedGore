@@ -47,7 +47,7 @@
 No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! I Am Intending To Remake Both My StrawPage And Rentry , Both Are Currently To Be Remade. (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 
 
-THOSE Satosugu shippers thin ice , also people who drain down Suguru( + Megumi)'s depression also thin ice.
+THOSE Satosugu Shippers Who Attack Gojohime Shippers Or Any Other Shipeprs Who Dont Ship Suguru And Satoru W Each Other ( Yes . People Like This Exist Because I've Encountered Them . ) Thin Ice , People Who Drain Down Suguru( + Megumi)'s Depression + People Who Make Satoru An Obsessed Freak Towards Suguru Also Thin Ice.
 
 You Can also call me by my fav characters' names!! (example, Douma, Misa is just a nickname!! ^_^)
 ⁠・⁠・⁠・
