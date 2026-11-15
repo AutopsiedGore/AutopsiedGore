@@ -45,7 +45,7 @@
 
  <img width="20" height="20" alt="1000034200" src="https://github.com/user-attachments/assets/6e995580-9c6c-4d75-962f-ab5cc7eb22a2" />
 No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! I Am Intending To Remake Both My StrawPage And Rentry , Both Are Currently To Be Remade. (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
-
+<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" />
 
 THOSE Satosugu Shippers Who Attack Gojohime Shippers Or Any Other Shippers Who Dont Ship Suguru And Satoru W Each Other ( Yes . People Like This Exist Because I've Encountered Them . ) Thin Ice , People Who Drain Down Suguru( + Megumi)'s Depression + People Who Make Satoru An Obsessed Freak Towards Suguru Also Thin Ice. Other Than That , No Dni , I Block Freely .
 
