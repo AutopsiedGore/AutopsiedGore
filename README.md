@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="https://komarev.com" alt="Lotuses" />
+</p>
+
 <img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/268362e7-8d2d-48f8-bd09-f55e6dd22dc5" />
 
 
