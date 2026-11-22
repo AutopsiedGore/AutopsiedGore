@@ -91,14 +91,8 @@ I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) 
 
 
 <img width="687" height="166" alt="1000034320" src="https://github.com/user-attachments/assets/258554a4-99a5-43a5-9ce3-45457273470b" /> 
-OHMU GOD I AM SO FRIGGIN CHEERED TO SEE THISSS 🥹🥹🥹🥹 IAM OFFICALY PONYTOWN'S DOUMA GUYUYYYSGSGSH
 <img width="795" height="166" alt="1000035463" src="https://github.com/user-attachments/assets/2cd3e5b3-f25e-4b25-b2c5-12745d531013" />
-I have no idea who keeps on nominating me on these but thank you SO SO SO SO SO MUCHHH, it keans ALOT to meee <333 love u guys sm!!
 <img width="972" height="166" alt="1000035956" src="https://github.com/user-attachments/assets/3f811c33-c7d4-4765-b4a3-697702fea1c2" />
 <img width="943" height="166" alt="1000035954" src="https://github.com/user-attachments/assets/00ebf834-c875-4517-837b-b21825a415b8" />
-AHSHSJ I'M SKSOOSOS HAPPY ILYSM GUYSSS
 <img width="1080" height="229" alt="1000038828" src="https://github.com/user-attachments/assets/08ed219a-0be4-4f24-8951-f1af227ce28f" />
-GIGGLES AND KICKS MY FEET
 <img width="1080" height="183" alt="1000038845" src="https://github.com/user-attachments/assets/25f84dc6-9b74-4fc4-8f04-ff008940e331" />
-GOT RECOGNIZED AS MY BIGGEST COMF CHAR ❤️ ❤️ ❤️ 🥹 THANKCHU ANDI SO SO MUCH FOR NOMINATING ME
-
