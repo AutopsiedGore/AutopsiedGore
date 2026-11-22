@@ -44,16 +44,11 @@ As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Ka
 <img width="20" height="20" alt="1000039408" src="https://github.com/user-attachments/assets/eca3c080-38de-4558-a307-4f8209662b8c" /><br><br>
 
 I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru , Obanai , Douma and Inumaki Alot .
-
 ・ ・ ・
-
 <br><br>
-
 ✦︎ Sharing Hantengu Clones (mainly Aizetsu) and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ◜⁠‿⁠◝⁠ )
-
 <br><br>
-
-<img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !! , Genya x Tanjiro #1 Lover !1!1!
+<img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !! , Also Genya x Tanjiro #1 Lover Hehahahheh .. I Luhv Literature , Criminology And Geography Too ! 
 
 <br><br>
 
