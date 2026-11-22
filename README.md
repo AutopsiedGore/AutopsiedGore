@@ -1,4 +1,9 @@
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=AutopsiedGore&label=Lotuses&color=A14F4B&style=flat" alt="Lotuses" />
+</p>
+
+
 
 
 
