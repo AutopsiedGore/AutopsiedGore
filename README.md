@@ -50,7 +50,7 @@ No DNI , I Block Freely And I Don't Really Care About What People Like As Long A
 
 THOSE Satosugu Shippers Who Attack Gojohime Shippers Or Any Other Shippers Who Dont Ship Suguru And Satoru W Each Other ( Yes . People Like This Exist Because I've Encountered Them . ) People Who Attack Itafushi Shippers In General ( Js Cause You See Them As Best Friends Doesn't Mean You Gotta Attack Those Who Ship Them LMAO , Same Goes for Satosugu Ship Haters ) , People Who Drain Down Suguru and Megumi's Depression + People Who Make Satoru An Obsessed Freak Towards Suguru Thin Ice .
 
-I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru and Inumaki Alot .
+I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru , Obanai , Douma and Inumaki Alot .
 ⁠・⁠・⁠・
 
 ✦︎ Sharing Hantengu Clones (mainly Aizetsu) and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ⁠◜⁠‿⁠◝⁠ ⁠) 
