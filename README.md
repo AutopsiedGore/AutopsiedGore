@@ -1,103 +1,86 @@
+<div align="center"><img src="https://komarev.com/ghpvc/?username=AutopsiedGore&label=Lotuses&color=A14F4B&style=flat" alt="Lotuses" /><br><br>
 
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=AutopsiedGore&label=Lotuses&color=A14F4B&style=flat" alt="Lotuses" />
-</p>
+<img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/268362e7-8d2d-48f8-bd09-f55e6dd22dc5" /><br><br>
 
+<img width="30" height="23" alt="1000034197" src="https://github.com/user-attachments/assets/36b927b1-ddc4-4230-a52a-969d2460a285" />
+<strong> Cԋιʂԋιყα ᵒʳ Aυƚσρʂყ ! </strong>
+<img width="30" height="23" alt="1000034198" src="https://github.com/user-attachments/assets/085c5a15-52ad-4a47-a471-d346ee805259" /><br><br><br>
 
+<img src="https://github.com/user-attachments/assets/2a41fa78-4575-40ea-babd-bcffe9dc9623" alt="Decoration" />
+ᛝ <strong>They</strong> 𝜗 **Any** ᛝ
+<img src="https://github.com/user-attachments/assets/6ed3e34c-ae33-490e-8746-8319f2b59352" alt="Decoration" />
+<img src="https://github.com/user-attachments/assets/a6794ac4-82c8-4f40-bbb2-0572933410f1" alt="Decoration" /><br><br>
 
+ᶠᵉᵉˡ ᶠʳᵉᵉ ᵀᵒ ᴵⁿᵗᵉʳᵃᶜᵗ ᴼʳ ᵀᵒ ᶜᵘᵈᵈˡᵉ ᴬⁿʸᵗⁱᵐᵉ ! (⁠.⁠ ❛⁠ ᴗ⁠ ❛⁠.⁠)
 
+<br><br>
 
-<img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/268362e7-8d2d-48f8-bd09-f55e6dd22dc5" />
+✦︎ 𝙈𝙤𝙨𝙩 𝙊𝙛 𝙏𝙝𝙚 𝙏𝙞𝙢𝙚 𝙄'𝙢 𝘼𝙡𝙤𝙣𝙚 𝙎𝙤 𝙄'𝙙 𝙍𝙚𝙖𝙡𝙡𝙮 𝘼𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 𝘼𝙣𝙮𝙗𝙤𝙙𝙮'𝙨 𝘾𝙤𝙢𝙥𝙖𝙣𝙮 (⁠-⁠_⁠-⁠;⁠)⁠・⁠・⁠・
 
+<br><br>
 
+<img width="1280" height="720" alt="1000034181" src="https://github.com/user-attachments/assets/94b1bd3b-1044-4955-9265-dafebebcd265" /><img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" /><br><br>
 
-    　 
-       
-  　　   
-     　   <img width="30" height="23" alt="1000034197" src="https://github.com/user-attachments/assets/36b927b1-ddc4-4230-a52a-969d2460a285" />
- __Cԋιʂԋιყα__ ᵒʳ __Aυƚσρʂყ__ !<img width="30" height="23" alt="1000034198" src="https://github.com/user-attachments/assets/085c5a15-52ad-4a47-a471-d346ee805259" />
+⤿ ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
 
+<br><br>
 
+<img width="20" height="20" alt="1000034199" src="https://github.com/user-attachments/assets/ff05c0d0-a66c-4fd8-9f49-410d5fe31db2" />
+INFJ ,, 4teen!! ;
+<img width="24" height="24" alt="1000034208" src="https://github.com/user-attachments/assets/cfb453d1-4997-4735-8bad-a87269617da6" />
+/ 
+<img width="24" height="24" alt="1000034209" src="https://github.com/user-attachments/assets/e74307dc-474b-41ff-b547-ee3994eb96b3" />
+:: Hungarian !!<br><br>
 
+<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/940680d1-e11f-476c-86b7-951bfd6812cb" /><br><br>
 
+⤿
+<img width="30" height="30" alt="1000034203" src="https://github.com/user-attachments/assets/4966fe4b-a463-4b6d-990e-a6d2948510c0" />
 
+As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Kaisen , Myth Of The Machine , Lackadaisy , Alice In Borderland , Creepypasta , Slendytubbies , Squid Game And 8 : 11 ! ;; I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! I Recommend Reading My Pronouns.cc Page Especially .
 
+<br><br>
 
+<img width="20" height="20" alt="1000034200" src="https://github.com/user-attachments/assets/6e995580-9c6c-4d75-962f-ab5cc7eb22a2" />No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! I Am Intending To Remake Both My StrawPage And Rentry , Both Are Currently To Be Remade. (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
 
+<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" /><br><br>
 
+<img width="20" height="20" alt="1000039406" src="https://github.com/user-attachments/assets/576856bb-d20c-4f24-8500-d11a47d336ce" />THOSE Satosugu Shippers Who Attack Gojohime Shippers Or Any Other Shippers Who Dont Ship Suguru And Satoru W Each Other ( Yes . People Like This Exist Because I've Encountered Them . ) People Who Attack Itafushi Shippers In General ( Js Cause You See Them As Best Friends Doesn't Mean You Gotta Attack Those Who Ship Them LMAO , Same Goes for Satosugu Ship Haters ) , People Who Drain Down Suguru and Megumi's Depression + People Who Make Satoru An Obsessed Freak Towards Suguru Thin Ice .
 
-  　![1000004874](https://github.com/user-attachments/assets/2a41fa78-4575-40ea-babd-bcffe9dc9623) ᛝ __They__ 𝜗 **Any** ᛝ![1000003912](https://github.com/user-attachments/assets/6ed3e34c-ae33-490e-8746-8319f2b59352) ![1000004873](https://github.com/user-attachments/assets/a6794ac4-82c8-4f40-bbb2-0572933410f1)
-
-
-
-
-  　 ᶠᵉᵉˡ ᶠʳᵉᵉ ᵀᵒ ᴵⁿᵗᵉʳᵃᶜᵗ ᴼʳ ᵀᵒ ᶜᵘᵈᵈˡᵉ ᴬⁿʸᵗⁱᵐᵉ ! (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
-
-  　✦︎ 𝙈𝙤𝙨𝙩 𝙊𝙛 𝙏𝙝𝙚 𝙏𝙞𝙢𝙚 𝙄'𝙢 𝘼𝙡𝙤𝙣𝙚 𝙎𝙤 𝙄'𝙙 𝙍𝙚𝙖𝙡𝙡𝙮 𝘼𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 𝘼𝙣𝙮𝙗𝙤𝙙𝙮'𝙨 𝘾𝙤𝙢𝙥𝙖𝙣𝙮 (⁠-⁠_⁠-⁠;⁠)⁠・⁠・⁠・
-
-<img width="1280" height="720" alt="1000034181" src="https://github.com/user-attachments/assets/94b1bd3b-1044-4955-9265-dafebebcd265" />
-
-<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" />
-
-
- 
-⤿  　ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
-
-  <img width="20" height="20" alt="1000034199" src="https://github.com/user-attachments/assets/ff05c0d0-a66c-4fd8-9f49-410d5fe31db2" />
- INFJ ,, 4teen!! ; <img width="24" height="24" alt="1000034208" src="https://github.com/user-attachments/assets/cfb453d1-4997-4735-8bad-a87269617da6" />
- / <img width="24" height="24" alt="1000034209" src="https://github.com/user-attachments/assets/e74307dc-474b-41ff-b547-ee3994eb96b3" />
-:: Hungarian !!
-
-<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/940680d1-e11f-476c-86b7-951bfd6812cb" />
-
-⤿  <img width="30" height="30" alt="1000034203" src="https://github.com/user-attachments/assets/4966fe4b-a463-4b6d-990e-a6d2948510c0" />　As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Kaisen , Myth Of The Machine , Lackadaisy , Alice In Borderland , Creepypasta  , Slendytubbies , Squid Game And 8 : 11 ! ;;   I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! I Recommend Reading My Pronouns.cc Page Especially .
-
-
- <img width="20" height="20" alt="1000034200" src="https://github.com/user-attachments/assets/6e995580-9c6c-4d75-962f-ab5cc7eb22a2" />
-No DNI , I Block Freely And I Don't Really Care About What People Like As Long As They Don't Involve Me In Dramas That They Get In , I Am No Person To Judge !! I Am Intending To Remake Both My StrawPage And Rentry , Both Are Currently To Be Remade. (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡
-<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" />
-
-<img width="20" height="20" alt="1000039406" src="https://github.com/user-attachments/assets/576856bb-d20c-4f24-8500-d11a47d336ce" />
-THOSE Satosugu Shippers Who Attack Gojohime Shippers Or Any Other Shippers Who Dont Ship Suguru And Satoru W Each Other ( Yes . People Like This Exist Because I've Encountered Them . ) People Who Attack Itafushi Shippers In General ( Js Cause You See Them As Best Friends Doesn't Mean You Gotta Attack Those Who Ship Them LMAO , Same Goes for Satosugu Ship Haters ) , People Who Drain Down Suguru and Megumi's Depression + People Who Make Satoru An Obsessed Freak Towards Suguru Thin Ice . <img width="20" height="20" alt="1000039408" src="https://github.com/user-attachments/assets/eca3c080-38de-4558-a307-4f8209662b8c" />
-
-
+<img width="20" height="20" alt="1000039408" src="https://github.com/user-attachments/assets/eca3c080-38de-4558-a307-4f8209662b8c" /><br><br>
 
 I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru , Obanai , Douma and Inumaki Alot .
-⁠・⁠・⁠・
 
-✦︎ Sharing Hantengu Clones (mainly Aizetsu) and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ⁠◜⁠‿⁠◝⁠ ⁠) 
+・ ・ ・
 
+<br><br>
 
-<img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !!  , Genya x Tanjiro #1 Lover !1!1! 
+✦︎ Sharing Hantengu Clones (mainly Aizetsu) and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ◜⁠‿⁠◝⁠ )
 
+<br><br>
 
+<img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !! , Genya x Tanjiro #1 Lover !1!1!
 
-<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" />
+<br><br>
 
+<img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" /><br><br>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<a href="https://github.com/kittinan/spotify-github-profile">
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false" alt="Spotify GitHub Profile" />
+</a><br><br>
 
+<img width="1588" height="529" alt="1000034180" src="https://github.com/user-attachments/assets/01329d47-63db-4f7a-b496-8a232f0eb0cf" /><br><br>
 
+<img src="https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f" alt="Decoration" />
+<a href="https://autopsiedgore.atabook.org/">𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> ✦︎
+<a href="https://pronouns.cc/@AutopsiedGore">Prns.cc</a> ✦︎
+<a href="https://Anatopsy.straw.page">StrawPage</a>
+<img src="https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f" alt="Decoration" /><br><br>
 
+<img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/4ee55efe-faf3-40d2-af59-fd1ee5b3f47b" /><br><br>
 
-<img width="1588" height="529" alt="1000034180" src="https://github.com/user-attachments/assets/01329d47-63db-4f7a-b496-8a232f0eb0cf" />
+<strong>Nominations!!</strong>
 
+<br><br>
 
-
-  　![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://autopsiedgore.atabook.org/) ✦︎ [Prns.cc](https://pronouns.cc/@AutopsiedGore) ✦︎ [StrawPage](https://Anatopsy.straw.page) ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)
-
-
-
- 　                    
-
-
-<img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/4ee55efe-faf3-40d2-af59-fd1ee5b3f47b" />
-
-<p align="center">Nominations!!</p>
-
-<img width="687" height="166" alt="1000034320" src="https://github.com/user-attachments/assets/258554a4-99a5-43a5-9ce3-45457273470b" /> 
-<img width="795" height="166" alt="1000035463" src="https://github.com/user-attachments/assets/2cd3e5b3-f25e-4b25-b2c5-12745d531013" />
-<img width="972" height="166" alt="1000035956" src="https://github.com/user-attachments/assets/3f811c33-c7d4-4765-b4a3-697702fea1c2" />
-<img width="943" height="166" alt="1000035954" src="https://github.com/user-attachments/assets/00ebf834-c875-4517-837b-b21825a415b8" />
-<img width="1080" height="229" alt="1000038828" src="https://github.com/user-attachments/assets/08ed219a-0be4-4f24-8951-f1af227ce28f" />
-<img width="1080" height="183" alt="1000038845" src="https://github.com/user-attachments/assets/25f84dc6-9b74-4fc4-8f04-ff008940e331" />
+<img width="687" height="166" alt="1000034320" src="https://github.com/user-attachments/assets/258554a4-99a5-43a5-9ce3-45457273470b" /><img width="795" height="166" alt="1000035463" src="https://github.com/user-attachments/assets/2cd3e5b3-f25e-4b25-b2c5-12745d531013" /><img width="972" height="166" alt="1000035956" src="https://github.com/user-attachments/assets/3f811c33-c7d4-4765-b4a3-697702fea1c2" /><img width="943" height="166" alt="1000035954" src="https://github.com/user-attachments/assets/00ebf834-c875-4517-837b-b21825a415b8" /><img width="1080" height="229" alt="1000038828" src="https://github.com/user-attachments/assets/08ed219a-0be4-4f24-8951-f1af227ce28f" /><img width="1080" height="183" alt="1000038845" src="https://github.com/user-attachments/assets/25f84dc6-9b74-4fc4-8f04-ff008940e331" /></div>
