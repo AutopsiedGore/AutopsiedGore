@@ -88,7 +88,7 @@ I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) 
 
 <img width="1558" height="160" alt="1000034183" src="https://github.com/user-attachments/assets/4ee55efe-faf3-40d2-af59-fd1ee5b3f47b" />
 
-
+<p align="center">Nominations!!</p>
 
 <img width="687" height="166" alt="1000034320" src="https://github.com/user-attachments/assets/258554a4-99a5-43a5-9ce3-45457273470b" /> 
 <img width="795" height="166" alt="1000035463" src="https://github.com/user-attachments/assets/2cd3e5b3-f25e-4b25-b2c5-12745d531013" />
