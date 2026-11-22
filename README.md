@@ -17,10 +17,8 @@ Feel Free To Interact Or Cuddle Anytime (⁠.⁠ ❛⁠ ᴗ⁠ ❛⁠.⁠)
 <br><br>
 <img width="1280" height="720" alt="1000034181" src="https://github.com/user-attachments/assets/94b1bd3b-1044-4955-9265-dafebebcd265" /><img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" /><br><br>
 
-⤿ ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
-
+⤿ Socially Awkward And Can Come Off As Dry At First , But I'm Trying My Best To Have A Good First Impression ! I Really Enjoy Being Accompanied Despite Having Social Anxiety
 <br><br>
-
 <img width="20" height="20" alt="1000034199" src="https://github.com/user-attachments/assets/ff05c0d0-a66c-4fd8-9f49-410d5fe31db2" />
 INFJ ,, 4teen!! ;
 <img width="24" height="24" alt="1000034208" src="https://github.com/user-attachments/assets/cfb453d1-4997-4735-8bad-a87269617da6" />
