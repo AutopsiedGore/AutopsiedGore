@@ -28,7 +28,7 @@ INFJ ,, 4teen!! ;
 
 <img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/940680d1-e11f-476c-86b7-951bfd6812cb" /><br><br>
 
-⤿
+
 <img width="30" height="30" alt="1000034203" src="https://github.com/user-attachments/assets/4966fe4b-a463-4b6d-990e-a6d2948510c0" />
 
 As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Kaisen , Myth Of The Machine , Lackadaisy , Alice In Borderland , Creepypasta , Slendytubbies , Squid Game And 8 : 11 ! ;; I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! I Recommend Reading My Pronouns.cc Page Especially .
@@ -44,7 +44,7 @@ As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Ka
 <img width="20" height="20" alt="1000039408" src="https://github.com/user-attachments/assets/eca3c080-38de-4558-a307-4f8209662b8c" /><br><br>
 
 I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru , Obanai , Douma and Inumaki Alot
-・ ・ ・
+・ ・ 
 <br><br>
 ✦︎ Sharing Hantengu Clones (mainly Aizetsu) and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ◜⁠‿⁠◝⁠ )
 <br><br>
