@@ -11,14 +11,10 @@
 <img src="https://github.com/user-attachments/assets/6ed3e34c-ae33-490e-8746-8319f2b59352" alt="Decoration" />
 <img src="https://github.com/user-attachments/assets/a6794ac4-82c8-4f40-bbb2-0572933410f1" alt="Decoration" /><br><br>
 
-ᶠᵉᵉˡ ᶠʳᵉᵉ ᵀᵒ ᴵⁿᵗᵉʳᵃᶜᵗ ᴼʳ ᵀᵒ ᶜᵘᵈᵈˡᵉ ᴬⁿʸᵗⁱᵐᵉ ! (⁠.⁠ ❛⁠ ᴗ⁠ ❛⁠.⁠)
-
+Feel Free To Interact Or Cuddle Anytime (⁠.⁠ ❛⁠ ᴗ⁠ ❛⁠.⁠)
 <br><br>
-
 ✦︎ 𝙈𝙤𝙨𝙩 𝙊𝙛 𝙏𝙝𝙚 𝙏𝙞𝙢𝙚 𝙄'𝙢 𝘼𝙡𝙤𝙣𝙚 𝙎𝙤 𝙄'𝙙 𝙍𝙚𝙖𝙡𝙡𝙮 𝘼𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 𝘼𝙣𝙮𝙗𝙤𝙙𝙮'𝙨 𝘾𝙤𝙢𝙥𝙖𝙣𝙮 (⁠-⁠_⁠-⁠;⁠)⁠・⁠・⁠・
-
 <br><br>
-
 <img width="1280" height="720" alt="1000034181" src="https://github.com/user-attachments/assets/94b1bd3b-1044-4955-9265-dafebebcd265" /><img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" /><br><br>
 
 ⤿ ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
