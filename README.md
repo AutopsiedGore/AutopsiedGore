@@ -17,7 +17,7 @@ Feel Free To Interact Or Cuddle Anytime (⁠.⁠ ❛⁠ ᴗ⁠ ❛⁠.⁠)
 <br><br>
 <img width="1280" height="720" alt="1000034181" src="https://github.com/user-attachments/assets/94b1bd3b-1044-4955-9265-dafebebcd265" /><img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" /><br><br>
 
-⤿ Socially Awkward And Can Come Off As Dry At First , But I'm Trying My Best To Have A Good First Impression ! I Really Enjoy Being Accompanied Despite Having Social Anxiety
+⤿ Socially Awkward And Can Come Off As Dry At First , But I'm Trying My Best To Have A Good First Impression ! I Really Enjoy Being Accompanied Despite Having Social Anxiety . I Tend To Lack Empathy , And I Can Be A Selfish Person Sometimes , But Please Don't Take It To Heart , I Don't Intend On Hurting Anybody . It's Just Something I Formed As A Defense Mechanism , You're Not To Blame At All .
 <br><br>
 <img width="20" height="20" alt="1000034199" src="https://github.com/user-attachments/assets/ff05c0d0-a66c-4fd8-9f49-410d5fe31db2" />
 INFJ ,, 4teen!! ;
@@ -40,11 +40,11 @@ I Am Heavily Passionate About My Interests , Please Feel Free To Ask About Them 
 
 <img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" /><br><br>
 
-<img width="20" height="20" alt="1000039406" src="https://github.com/user-attachments/assets/576856bb-d20c-4f24-8500-d11a47d336ce" />THOSE Satosugu Shippers Who Attack Gojohime Shippers Or Any Other Shippers Who Dont Ship Suguru And Satoru W Each Other ( Yes . People Like This Exist Because I've Encountered Them . ) People Who Attack Itafushi Shippers In General ( Js Cause You See Them As Best Friends Doesn't Mean You Gotta Attack Those Who Ship Them LMAO , Same Goes for Satosugu Ship Haters ) , People Who Drain Down Suguru and Megumi's Depression + People Who Make Satoru An Obsessed Freak Towards Suguru Thin Ice . I Dislike The Concept Of Characters With Depression Being Watered Down (⁠@⁠_⁠@⁠)
+<img width="20" height="20" alt="1000039406" src="https://github.com/user-attachments/assets/576856bb-d20c-4f24-8500-d11a47d336ce" />THOSE Satosugu Shippers Who Attack Gojohime Shippers Or Any Other Shippers Who Dont Ship Suguru And Satoru W Each Other ( Yes . People Like This Exist Because I've Encountered Them . ) People Who Attack Itafushi Shippers In General ( Js Cause You See Them As Best Friends Doesn't Mean You Gotta Attack Those Who Ship Them LMAO , Same Goes for Satosugu Ship Haters ) , People Who Drain Down Suguru and Megumi's Depression + People Who Make Satoru An Obsessed Freak Towards Suguru Thin Ice . I Dislike The Concept Of Characters With Depression Being Watered Down (⁠@⁠_⁠@⁠) Fyi , If I See Someone Copying My Skins , I Will NOT Jump You , But It's Guaranteed That I Or My Close Oomfs will Confront You . I Don't Think Jumping Someone Over A Skin Is A Mature Way Of Acting , So I Prefer Communication Over Fights .
 
 <img width="20" height="20" alt="1000039408" src="https://github.com/user-attachments/assets/eca3c080-38de-4558-a307-4f8209662b8c" /><br><br>
 
-I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru , Obanai , Douma , Chishiya and Inumaki Alot
+I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru , Obanai , Douma , Chishiya And Inumaki A Llt , They Bring So So Much Comfort To Me Because Of How Much They Remind Me Of Myself Personality , Mental Health Or Backround-Wise.
 ・ ・ 
 <br><br>
 ✦︎ Hantengu Clones (mainly Aizetsu) and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ◜⁠‿⁠◝⁠ )
