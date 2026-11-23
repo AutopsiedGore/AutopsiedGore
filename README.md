@@ -17,7 +17,7 @@ Feel Free To Interact Or Cuddle Anytime (⁠.⁠ ❛⁠ ᴗ⁠ ❛⁠.⁠)
 <br><br>
 <img width="1280" height="720" alt="1000034181" src="https://github.com/user-attachments/assets/94b1bd3b-1044-4955-9265-dafebebcd265" /><img width="1558" height="160" alt="1000034184" src="https://github.com/user-attachments/assets/d1d75896-27a6-410a-8517-13605306a9bf" /><br><br>
 
-⤿ Socially Awkward And Can Come Off As Dry At First , But I'm Trying My Best To Have A Good First Impression ! I Really Enjoy Being Accompanied Despite Having Social Anxiety . I Tend To Lack Empathy , And I Can Be A Selfish Person Sometimes , But Please Don't Take It To Heart , I Don't Intend On Hurting Anybody . It's Just Something I Formed As A Defense Mechanism , You're Not To Blame At All .
+⤿ Socially Awkward And Can Come Off As Dry At First , But I'm Trying My Best To Have A Good First Impression ! I Really Enjoy Being Accompanied Despite Having Social Anxiety . I Tend To Lack Empathy , And I Can Be A Selfish Person Sometimes , But Please Don't Take It To Heart , I Don't Intend On Hurting Anybody . It's Just Something I Formed As A Defense Mechanism , You're Not To Blame At All . Every Compliment I Recieve For My Skins Are Heavily Appreciated , It Cheers Me Up So So Much . (⁠ㆁ⁠ω⁠ㆁ⁠)
 <br><br>
 <img width="20" height="20" alt="1000034199" src="https://github.com/user-attachments/assets/ff05c0d0-a66c-4fd8-9f49-410d5fe31db2" />
 INFJ ,, 4teen!! ;
@@ -31,7 +31,7 @@ INFJ ,, 4teen!! ;
 
 <img width="30" height="30" alt="1000034203" src="https://github.com/user-attachments/assets/4966fe4b-a463-4b6d-990e-a6d2948510c0" />
 
-As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Kaisen , Myth Of The Machine , Lackadaisy , Alice In Borderland , Creepypasta , Slendytubbies , Squid Game And 8 : 11 ! ;; I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! I Recommend Reading My Pronouns.cc Page Especially . I Like Reading , Like A LOT . I Have Read About More than 1k Books In 3 Years . I Really Really Luv Matching And Making Skins For My Oomfs , It Brings Alot Of Comfort To Me .
+As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Kaisen , Myth Of The Machine , Lackadaisy , Alice In Borderland , Creepypasta , Slendytubbies , Squid Game And 8 : 11 ! ;; I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! I Recommend Reading My Pronouns.cc Page Especially . I Like Reading , Like A LOT . I Have Read About More than 1k Books In 3 Years . I Really Really Luv Matching And Making Skins For My Oomfs , It Brings Alot Of Comfort To Me . If You See Me , Don't Hesitate To Sit , Cuddle Or Talk To Me , I Really Luhv Interactions And I Have A Huge Cuddle / Snuggle Comfort ^_^
 
 <br><br>
 
@@ -44,7 +44,7 @@ I Am Heavily Passionate About My Interests , Please Feel Free To Ask About Them 
 
 <img width="20" height="20" alt="1000039408" src="https://github.com/user-attachments/assets/eca3c080-38de-4558-a307-4f8209662b8c" /><br><br>
 
-I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru , Obanai , Douma , Chishiya And Inumaki A Llt , They Bring So So Much Comfort To Me Because Of How Much They Remind Me Of Myself Personality , Mental Health Or Backround-Wise.
+I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru , Obanai , Douma , Chishiya And Inumaki A Llt , They Bring So So Much Comfort To Me Because Of How Much They Remind Me Of Myself Personality , Mental Health Or Backround-Wise As These Chars Have Been Helping Me Alot Ever Since My Mental Health's Been Terrible . Hence This , I Sometimes Tend To Go On Hiatuses , But Overtime , I'll Start Being Active Again ! 
 ・ ・ 
 <br><br>
 ✦︎ Hantengu Clones (mainly Aizetsu) and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ◜⁠‿⁠◝⁠ )
