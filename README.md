@@ -47,7 +47,7 @@ I Am Heavily Passionate About My Interests , Please Feel Free To Ask About Them 
 I See Satoru As My Big Brother And He's Very Dear To Me (⁠≧⁠▽⁠≦⁠) (yeag.. evn if I sometimes slander him I'm jsut jokinh ok i lov him) , I Also Relate To Suguru , Obanai , Douma , Chishiya And Inumaki A Llt , They Bring So So Much Comfort To Me Because Of How Much They Remind Me Of Myself Personality , Mental Health Or Backround-Wise As These Chars Have Been Helping Me Alot Ever Since My Mental Health's Been Terrible . Hence This , I Sometimes Tend To Go On Hiatuses , But Overtime , I'll Start Being Active Again ! 
 ・ ・ 
 <br><br>
-✦︎ Hantengu Clones (mainly Aizetsu) and Choso Kamo Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ◜⁠‿⁠◝⁠ )
+✦︎ Hantengu Clones (mainly Aizetsu) and Choso Yumeshipper & Satoru Gojo familial yume (big brother) (⁠ ◜⁠‿⁠◝⁠ )
 <br><br>
 <img width="28" height="28" alt="1000034207" src="https://github.com/user-attachments/assets/ab2f10c9-a136-4d39-9556-0ab893449827" />I Really REALLY Love History , I Am Such A Nerd About It !! , Also Genya x Tanjiro #1 Lover Hehahahheh .. I Luhv Literature , Criminology And Geography Too ! 
 <br><br>
