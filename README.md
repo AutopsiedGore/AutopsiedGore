@@ -31,7 +31,7 @@ INFJ ,, 4teen!! ;
 
 <img width="30" height="30" alt="1000034203" src="https://github.com/user-attachments/assets/4966fe4b-a463-4b6d-990e-a6d2948510c0" />
 
-As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Kaisen , Myth Of The Machine , Lackadaisy , Alice In Borderland , Creepypasta , Slendytubbies , Squid Game And 8 : 11 ! ;; I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! I Recommend Reading My Pronouns.cc Page Especially .
+As Of Right Now , My Main Fandoms Are : Harry Potter , Demon Slayer , Jujutsu Kaisen , Myth Of The Machine , Lackadaisy , Alice In Borderland , Creepypasta , Slendytubbies , Squid Game And 8 : 11 ! ;; I Am In Plenty Of Fandoms Though , So Feel Free To Check Them Out On My Strawpage Or Rentry! I Recommend Reading My Pronouns.cc Page Especially . I Like Reading , Like A LOT . I Have Read About More than 1k Books In 3 Years . I Really Really Luv Matching And Making Skins For My Oomfs , It Brings Alot Of Comfort To Me .
 
 <br><br>
 
